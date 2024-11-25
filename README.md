@@ -65,3 +65,11 @@ Windmill Dragon = Don Quixote. Read the Summary of every Pulitzer Prize of Ficti
 >* ### Binary
 >* ### Lots More I Can't Think of!
 
+
+## Important Tips:  
+You only need to remember the last names of people, unless they have a very very common last name.  
+Wait out the 15 seconds you're allowed after buzzing just incase someone changes their mind or has a sudden realization last second.  
+**Be mindful of what categories you are lacking on each meet, or specific sections of topics that are frequently missed.**  
+I cannot stress the importance of actually focusing on weak points from meet to meet. You will notice instant improvement.  
+You won't know every single question in a meet... Unless you study really hard. Remember that 45 - 0 - 0 is a possible score for a round.
+
